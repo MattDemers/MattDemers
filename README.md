@@ -4,5 +4,6 @@ I work in esports and gaming as someone who connects communities. I'm passionate
 
 I've been involved with esports and Twitch culture since 2011; it's been a long ride of working at multiple publications, teams and companies. Thanks for checking my little bio out.
 
-You can find my work at https://mattdemers.com<br >
-More of my links are at https://onemorematt.com
+You can find my work at https://mattdemers.com ✍🏻<br >
+More of my links are at https://onemorematt.com 🔗<br >
+I stream video games at https://twitch.tv/mattdemers 👾
