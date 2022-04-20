@@ -7,3 +7,4 @@ I've been involved with esports and Twitch culture since 2011; it's been a long 
 You can find my work at https://mattdemers.com ✍🏻<br >
 More of my links are at https://onemorematt.com 🔗<br >
 I stream video games at https://twitch.tv/mattdemers 👾
+I write a biweekly newsletter about esports and stream culture at https://plusheart.substack.com 📩
