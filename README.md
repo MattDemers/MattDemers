@@ -9,4 +9,4 @@ More of my links are at https://onemorematt.com 🔗<br >
 I stream video games at https://twitch.tv/mattdemers 👾<br >
 I write a biweekly newsletter about esports and stream culture at https://plusheart.substack.com 📩
 
-Avatar is an art piece by [Synecdoche](https://twitter.com/synecdoche445), an artist, on Twitter. Posts on said Twitter may be NSFW.
+Avatar is [an art piece](https://twitter.com/synecdoche445/status/1485006524502229002) by [Synecdoche](https://twitter.com/synecdoche445), an artist, on Twitter. Posts on said Twitter may be NSFW.
